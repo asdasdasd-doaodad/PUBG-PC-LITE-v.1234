@@ -1,5 +1,6 @@
 # PUBG-PC-LITE-v.1234
 PUBG PC LITE Hack ver.1234
+Password : 1
 STATUS : UNDETECTED
 
 Discord Server : https://discord.gg/uPmF7D5mcN
